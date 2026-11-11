@@ -53,7 +53,8 @@ use a versão de celular ao seu próprio risco
 
 
   <img width="736" height="411" alt="1000043414" src="https://github.com/user-attachments/assets/b59cb3cb-8980-4476-aae9-48c69f5c7812" />
-  
+ <img width="1460" height="300" alt="1000043453" src="https://github.com/user-attachments/assets/66007584-a25f-4f04-b34a-2b5634a4c096" />
+ 
  eu quando meu amigo está lowkey com fome aí eu alimento ele mas ele quer comer queijos!! /subtleforeshadowing
  
 ------------
