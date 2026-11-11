@@ -67,4 +67,5 @@ garotinhas mágicas <img width="160" height="138" alt="1000043448" src="https://
 <a href="https://github.com/c0ff3el0v3r"><img width="170" height="178" alt="1000043483" src="https://github.com/user-attachments/assets/e0ebd787-44da-4a76-be3e-38ead23c1e9f" /></a>
 <a href="https://github.com/parameowia"><img width="190" height="178" alt="1000043488" src="https://github.com/user-attachments/assets/007b51ad-6bda-4087-b109-fb16e8a56748" /></a>
 <a href="https://github.com/jalbert-forever"><img width="175" height="180" alt="1000043487" src="https://github.com/user-attachments/assets/9fd3973d-5d45-4a63-82ae-0f1879680685" /></a>
+<a href="https://github.com/YipeMingosMimos"><img width="170" height="180" alt="1000043491" src="https://github.com/user-attachments/assets/48ce7fe7-c7fe-48d5-9a2a-cc893ce9b56a" /></a>
 
