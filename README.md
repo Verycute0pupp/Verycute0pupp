@@ -61,4 +61,4 @@ use a versão de celular ao seu próprio risco
 garotinhas mágicas <img width="160" height="138" alt="1000043448" src="https://github.com/user-attachments/assets/867dc8f2-82e4-4cfd-8560-fd59d240f0fb" />
 
 [![kyoko](<img width="736" height="814" alt="1000043473" src="https://github.com/user-attachments/assets/2db44e48-5c12-4a81-9c79-34f460ccd783" />
-)](https://github.com/)
+)](https://github.com/@kaleidoskulls)
