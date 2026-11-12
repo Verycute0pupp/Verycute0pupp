@@ -69,4 +69,10 @@ garotinhas mágicas <img width="160" height="138" alt="1000043448" src="https://
 <a href="https://github.com/parameowia"><img width="190" height="178" alt="1000043488" src="https://github.com/user-attachments/assets/007b51ad-6bda-4087-b109-fb16e8a56748" /></a>
 <a href="https://github.com/jalbert-forever"><img width="175" height="180" alt="1000043487" src="https://github.com/user-attachments/assets/9fd3973d-5d45-4a63-82ae-0f1879680685" /></a>
 <a href="https://github.com/YipeMingosMimos"><img width="170" height="180" alt="1000043491" src="https://github.com/user-attachments/assets/48ce7fe7-c7fe-48d5-9a2a-cc893ce9b56a" /></a>
+<a href="https://github.com/V1C10-EM-MURD3R-DR0N3S"><img width="170" height="189" alt="1000043496" src="https://github.com/user-attachments/assets/8e0b5247-8cb9-4761-91d7-8d8b32290eb5" /></a>
+
+
+menção honrosa ao grandioso 🙇🏻
+
+<a href="https://github.com/zerstorungswalze"><img width="994" height="574" alt="1000043497" src="https://github.com/user-attachments/assets/d7916614-5f08-4d7b-9ea1-d7abf3512302" /></a>
 
