@@ -68,7 +68,7 @@ garotinhas mágicas <img width="160" height="138" alt="1000043448" src="https://
 <a href="https://github.com/c0ff3el0v3r"><img width="170" height="178" alt="1000043483" src="https://github.com/user-attachments/assets/e0ebd787-44da-4a76-be3e-38ead23c1e9f" /></a>
 <a href="https://github.com/parameowia"><img width="190" height="178" alt="1000043488" src="https://github.com/user-attachments/assets/007b51ad-6bda-4087-b109-fb16e8a56748" /></a>
 <a href="https://github.com/jalbert-forever"><img width="175" height="180" alt="1000043487" src="https://github.com/user-attachments/assets/9fd3973d-5d45-4a63-82ae-0f1879680685" /></a>
-<a href="https://github.com/YipeMingosMimos"><img width="170" height="180" alt="1000043551" src="https://github.com/user-attachments/assets/d02a629e-5128-43b6-9cb0-71d0c1cff89d" /></a>
+<a href="https://github.com/YipeMingosMimos"><img width="170" height="180" alt="1000043491" src="https://github.com/user-attachments/assets/5f72d93a-3ce0-4537-a1af-b0b1a7989c79" /></a>
 <a href="https://github.com/V1C10-EM-MURD3R-DR0N3S"><img width="170" height="189" alt="1000043496" src="https://github.com/user-attachments/assets/8e0b5247-8cb9-4761-91d7-8d8b32290eb5" /></a>
 
 
