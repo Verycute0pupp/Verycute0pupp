@@ -14,6 +14,8 @@ use a versão de celular ao seu próprio risco
   **basic dni criteria**
 
   **se você a cada dois segundo fala de sexo**
+
+  **kaleidoskulls/ecto**
 </details>
 
 <img width="190" height="200" alt="1000043439" src="https://github.com/user-attachments/assets/b76fbeb8-75c6-4491-a0c2-db6ec906e351" /> 
